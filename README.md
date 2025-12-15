@@ -1,5 +1,5 @@
 ## Hi there 👋
-My name is Taufiq. I am a CS Grad Student at Virginia Tech. You can reach me at [LinkedIn](https://www.linkedin.com/in/taufiq-husada-daryanto/). 
+My name is Taufiq. You can reach me at [LinkedIn](https://www.linkedin.com/in/taufiq-husada-daryanto/). 
 
 ## More Information
 
